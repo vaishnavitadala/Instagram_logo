@@ -1,1 +1,1 @@
-# Instagram_logo
+# INSTAGRAM-LOGO
